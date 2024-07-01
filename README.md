@@ -2,7 +2,7 @@
 - 👀 I’m interested in music
 - 🌱 I’m currently learning ways to improve my vocals
 - 💞️ I’m looking to collaborate on music
-- 📫 How to reach me on instagram @Call me reiner Tiktok @Call me rein
+- 📫 How to reach me on email reinerwachira585@Gmail.com
 - ⚡ Fun fact: Can we be friends
 
 <!---
